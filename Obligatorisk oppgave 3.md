@@ -2,10 +2,10 @@
 
 ## Innledning
 
-## Organisasjonsstruktur
+## Organisasjonsstruktur (Shaima)
 
-## Organisasjonskultur
+## Organisasjonskultur (Bjørn Tore)
 
-## Gruppens problemer og mulige løsninger
+## Gruppens problemer og mulige løsninger (Lars og Adrian)
 
 ## Konklusjon
